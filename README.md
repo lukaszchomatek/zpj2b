@@ -1,3 +1,3 @@
 # zpj2b
 
-Dodane bardzo ważne informacje
+Dodane bardzo ważne informacje.
